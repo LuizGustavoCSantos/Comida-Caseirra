@@ -1,6 +1,10 @@
 PREVIEW SITE / ÁREA DO USUÁRIO
 
-![Mostrando Site](https://github.com/user-attachments/assets/05543692-7763-4ed8-bd93-139683aedc23)
+
+
+https://github.com/user-attachments/assets/f1a95062-4ccb-4d81-856b-93bf733ae21d
+
+
 
 
 PREVIEW ÁREA ADMINISTRADOR / DONO 
