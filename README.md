@@ -1,4 +1,4 @@
-PREVIEW SITE / ÁREA DO USUÁRIO
+PREVIEW SITE / ÁREA DO USUÁRIO 🛒
 
 
 
@@ -7,7 +7,7 @@ https://github.com/user-attachments/assets/f1a95062-4ccb-4d81-856b-93bf733ae21d
 
 
 
-PREVIEW ÁREA ADMIN / DONO 
+⚙️ PREVIEW ÁREA ADMIN / DONO 📈
 
 
 
