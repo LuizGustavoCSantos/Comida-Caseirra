@@ -7,7 +7,17 @@ https://github.com/user-attachments/assets/f1a95062-4ccb-4d81-856b-93bf733ae21d
 
 
 
-PREVIEW ÁREA ADMINISTRADOR / DONO 
+PREVIEW ÁREA ADMIN / DONO 
+
+
+
+
+
+https://github.com/user-attachments/assets/0b993489-c2c7-4d6d-9531-caed8ac388c7
+
+
+
+
 
 
 
